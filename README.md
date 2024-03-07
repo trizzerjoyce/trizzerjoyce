@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @trizzerjoyce
 - 👀 I’m interested in providing day to day solutions using tech.
 - 🌱 I’m currently learning data analytics, coding and entreprenuerial content.
-- 💞️ I’m looking to collaborate on entreprenuerial ideas that aims on offering solutions to day to day solutions.
+- 💞️ I’m looking to collaborate on entreprenuerial ideas that embrace simplicity to complex challenges.
 - 📫 How to reach me; instagram, X, linkedln,tiktok @trizzer_joyce_7
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I subscribe to unpopular thinking, deep conversations and sarcastic humor.
